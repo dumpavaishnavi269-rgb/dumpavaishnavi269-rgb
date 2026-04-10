@@ -56,7 +56,7 @@
 ---
 
 ## 🌐 Portfolio
-💻 https://yourusername.github.io/portfolio/  
+💻 https://dumpavaishnavi.lovable.app/  
 
 ---
 
